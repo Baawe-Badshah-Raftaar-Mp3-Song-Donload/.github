@@ -88,4 +88,6 @@ Mic pe Raftaar, saath hai Badshah,
 Baat clear karde, yeh hai dhamaka!
 
 ---
-google-site-verification=e4MBRevV50grL4JQZ43gpurVVZml_A94wZZD4cJ6fNw
+```html
+<meta name="google-site-verification" content="e4MBRevV50grL4JQZ43gpurVVZml_A94wZZD4cJ6fNw" />
+
