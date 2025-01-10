@@ -1,5 +1,8 @@
 # **BAAWE (Raftaar x Badshah) Mp3 Song Download**  
+## **Download Links**  
 
+[➤ ►🌍📺📱👉 Baawe Badshah 320kbps](https://pagalworld.com.in)
+[➤ ►🌍📺📱👉 Baawe Badshah 128kbps](https://pagalworld.com.in)
 Download the latest hit **BAAWE** by **Raftaar** and **Badshah** in high-quality audio formats. Enjoy the beats, vibe, and lyrics brought to you by the best in the game!  
 
 - **Singer**: Raftaar, Badshah  
@@ -7,13 +10,6 @@ Download the latest hit **BAAWE** by **Raftaar** and **Badshah** in high-quality
 - **Music**: ASHOCK (Bassholics)  
 
 ---
-
-## **Download Links**  
-
-# ➤ ►🌍📺📱👉 Baawe Badshah 320kbps
-# ➤ ►🌍📺📱👉 Baawe Badshah 128kbps
-
-
 ---
 
 Experience the music that sets the stage on fire. Get your favorite track now from **PagalWorld**!  
