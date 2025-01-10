@@ -2,7 +2,9 @@
 ## **Download Links**  
 
 [➤ ►🌍📺📱👉 Baawe Badshah 320kbps](https://pagalworld.com.in)
+
 [➤ ►🌍📺📱👉 Baawe Badshah 128kbps](https://pagalworld.com.in)
+
 Download the latest hit **BAAWE** by **Raftaar** and **Badshah** in high-quality audio formats. Enjoy the beats, vibe, and lyrics brought to you by the best in the game!  
 
 - **Singer**: Raftaar, Badshah  
